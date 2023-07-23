@@ -19,7 +19,7 @@ Data analysis is not just a career path for me; it's a passion. The ability to t
 
 ## How to Connect
 
-I'm always open to collaborating on data analysis projects, participating in data-related discussions, or exploring exciting career opportunities. Please feel free to reach out to me via [mahde18@gmail.com] or connect with me on [LinkedIn](https://www.linkedin.com/in/hasanmahmudmanna/).
+I'm always open to collaborating on data analysis projects, participating in data-related discussions, or exploring exciting career opportunities. Please feel free to reach out to me via mahde18@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/hasanmahmudmanna/).
 
 ## Let's Collaborate
 
