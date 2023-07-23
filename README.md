@@ -1,6 +1,7 @@
 # My Data Analysis Resume
 
 ![Resume Banner](resume_banner.jpg)
+![HasanMahmudManna_short](https://github.com/Mahe18/resume/assets/48506024/9ba4cf73-a833-4aed-aa8f-7e450f3ab33d)
 
 ## Introduction
 
